@@ -1,1 +1,1 @@
-# Here you can get acquainted with my Python skills.
+# Here you can get acquainted with my hard skills.
