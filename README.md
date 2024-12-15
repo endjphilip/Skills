@@ -1,1 +1,1 @@
-# Here you can get acquainted with my hard skills (all data is artificial).
+# Here you can get acquainted with some of my hard skills (all data is artificial).
